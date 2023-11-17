@@ -1,0 +1,1 @@
+# Cenario-personagem-e-tradu-o
