@@ -1,1 +1,3 @@
-# Cenario-personagem-e-tradu-o
+# Cenario-personagem-e-traducao
+
+Prof. orientador Claudia Torres Remenegildo
